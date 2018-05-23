@@ -1,4 +1,4 @@
-Hokie, Hokie, Hokie, Hy
+Emily Rocks wooooooo
 Tech, Tech, VPI
 Solo-Rex, Solo-Ra
 
